@@ -1,0 +1,1 @@
+Estatística - Distribuição dee frequência 
